@@ -1,4 +1,3 @@
-**VISHAL KUMAR**
 
 My name is Vishal Kumar.I have done my Btech from GURU NANAK DEV ENGINEERING college and currently I'm pursuing my Mtech in Structural Engineeering.
 
